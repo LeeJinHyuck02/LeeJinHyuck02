@@ -1,3 +1,3 @@
-- Major in Industrial Management and Engineering
+- Major in Mathematics
 - Dream in Postech
 - Breath in Pohang and Gwangju
